@@ -21,14 +21,14 @@ July 2011 - Juni 2014
 
 ## Pelatihan
 
-* Seminar Paint 2015\
-* Ranked Solo/Duo League of Legends Season 7\
+* Seminar Paint 2015
+* Ranked Solo/Duo League of Legends Season 7
 * Pelatihan Bertahan Hidup dari Zombie XI
 
 ## Keahlian
 
-* League of Legends Ranked Solo Queue\
-* The Forest 30-Day Survival\
+* League of Legends Ranked Solo Queue
+* The Forest 30-Day Survival
 * Left 4 Dead 2
 
 ## Hobi
