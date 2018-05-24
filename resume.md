@@ -7,7 +7,7 @@ Mahasiswa Ilmu Komputer IPB
 
 ## Pendidikan
 
-### Institut Pertanian Bogor --- Mahasiswa S1
+### Institut Pertanian Bogor —  Mahasiswa S1
 
 Agustus 2017 - Sekarang: Mahasiswa Ilmu Komputer
 
